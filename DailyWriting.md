@@ -1,0 +1,3 @@
+# 2021-03-23
+
+What do I want to talk about. The Dishwasher? What it means to me. This device, makes things easy, or just, easier. Still requiring attention and intervention. Still requiring me to manage. It won't load on it's own. It won't load by the work of anyone else. Or at least it don't. Many of it's problems don't seem to stem from the washer itself. Really the only thing it could do is be a bit faster. It is wonderful in its own way. Able to hide away and remove the mess we leave, but we still must leave it in the right place. Some how even that is beyond our capabilities. It is very like us; humans. We do everything we can to automate and make our lives easier but none of it solves our biggest problem. Ourselves.
